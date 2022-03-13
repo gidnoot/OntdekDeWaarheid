@@ -1,0 +1,1 @@
+God heeft bepaald wat goed en kwaad is
